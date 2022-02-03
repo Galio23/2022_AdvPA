@@ -18,4 +18,4 @@ If you have any questions or issues, please contact me by email (**lmbastos@uga.
 Thanks, and happy coding!  
 
 
-![](https://www.pexels.com/photo/cotton-field-under-white-cloudy-sky-10287689/). 
+![](https://images.pexels.com/photos/10287689/pexels-photo-10287689.jpeg?cs=srgb&dl=pexels-mark-stebnicki-10287689.jpg&fm=jpg). 
